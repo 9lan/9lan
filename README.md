@@ -14,3 +14,16 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+## 🌍 Open to Remote Opportunities
+
+Whether it's a full-time gig or a freelance project, I'm all ears for exciting remote work. Let's build something cool together! 🛠️
+
+## 📬 Get in Touch
+
+📧 Email: [andangvijayantoutomo@gmail.com](mailto:andangvijayantoutomo@gmail.com)  
+👔 LinkedIn: [Andang Vijayanto Utomo](https://www.linkedin.com/in/andang-vijayanto-utomo)
+
+---
+
+*Hufttt* 😮‍💨
